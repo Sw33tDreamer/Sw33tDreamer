@@ -2,6 +2,12 @@
 
 <img width="1100" alt="598301799-1e4735b3-aaea-4948-ac5c-b98240ae7ba7" src="https://github.com/user-attachments/assets/91e46338-c558-4bc8-993f-ac976c551492" />
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31tk6kqmsq2kx5g4sdxtqlakt5w4&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31tk6kqmsq2kx5g4sdxtqlakt5w4&cover_image=true&theme=default&show_offline=false&background_color=85daff&interchange=true&profanity=false&hide_remaster=true&bar_color=ff7aa2&bar_color_cover=true">
+  </a>
+</p>
+
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=Sw33tDreamer-CO&label=Pokeballs!&color=ef9aad) <img width="20" alt="tumblr_0f804a482d0bab5d656a4c961d9317a4_aaf16df8_75" src="https://github.com/user-attachments/assets/568e3064-8c98-4d64-840a-44968820b184" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/Sw33tDreamer?style=flat&label=Pokemon!&color=bbe4fa">
