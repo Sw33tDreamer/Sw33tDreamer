@@ -25,34 +25,23 @@
 
 𝐚𝐠𝐞 (𝐨𝐫 𝐫𝐚𝐧𝐠𝐞): 17
 
-𝐧𝐚𝐭𝐢𝐨𝐧𝐚𝐥𝐢𝐭𝐲: German, Irish, American and Arabian
+𝐧𝐚𝐭𝐢𝐨𝐧𝐚𝐥𝐢𝐭𝐲: German, Irish, American, and Arabian
 
 𝐡𝐞𝐢𝐠𝐡𝐭: 5'3
-
-𝐠𝐞𝐧𝐝𝐞𝐫: Nonbinary
-
-𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬: she/her/they/them
-
-𝐬𝐞𝐱𝐮𝐚𝐥𝐢𝐭𝐲: Bisexual
-
-𝐥𝐢𝐤𝐞𝐬: Lovejoy, Wilbur Soot, roblox, fortnite, Family and friends, Bluey, Drawing, Music
-
-𝐝𝐢𝐬𝐥𝐢𝐤𝐞𝐬: Spicy foods, tomatoes, and others (it's long asf) basic dni criteria
-
-https://pronouns.cc/@Sammylol
-
 
 <div align="center">
 <img width="2048" alt="tumblr_48963b16eb02d5d168e2ef1bddda31ca_d4f366fa_2048" src="https://github.com/user-attachments/assets/5bec4774-d32f-48b6-87b6-e0ef37c533d5" />
 </div>
 
-Blah Blah
+𝐠𝐞𝐧𝐝𝐞𝐫: Nonbinary
 
-Blah Blah
+𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬: She/Her/They/Them
 
-<div align="right">
-<img width="545" alt="555629285-a00a6c7a-3259-4f1c-8b77-2de2f7b64618" src="https://github.com/user-attachments/assets/d1b6bdec-278d-4bef-ab65-d38f89f3b42c" />
-</div>
+𝐬𝐞𝐱𝐮𝐚𝐥𝐢𝐭𝐲: Bisexual
+
+𝐥𝐢𝐤𝐞𝐬: Lovejoy, Wilbur Soot, Roblox, Fortnite, Family and friends, Bluey, Drawing, Music
+
+𝐝𝐢𝐬𝐥𝐢𝐤𝐞𝐬: Spicy foods, tomatoes, and others (it's long asf) basic dni criteria
 
 <img width="1100" alt="598301799-1e4735b3-aaea-4948-ac5c-b98240ae7ba7" src="https://github.com/user-attachments/assets/91e46338-c558-4bc8-993f-ac976c551492" />
 
