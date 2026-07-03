@@ -45,6 +45,16 @@
 
 𝐝𝐢𝐬𝐥𝐢𝐤𝐞𝐬: Spicy foods, tomatoes, and others (it's long asf) basic dni criteria
 
+
+
+
+
+
+★ ‧ @sw33tdreamer ᐟᐟ
+        Love/me ˚.୨୧˚
+
+"Even when everything fails you still blame me..?"
+౨ৎ
 <img width="1100" alt="598301799-1e4735b3-aaea-4948-ac5c-b98240ae7ba7" src="https://github.com/user-attachments/assets/91e46338-c558-4bc8-993f-ac976c551492" />
 
 <img width="1280" alt="tumblr_b55efcfad74a5b8e92f1cbab1c0b47e3_13d39de1_1280" src="https://github.com/user-attachments/assets/8d9ca9ad-7e56-4f42-aef5-702da01f9958" />
