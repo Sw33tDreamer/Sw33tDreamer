@@ -52,7 +52,7 @@
       
       Love/me ˚.୨୧˚
 
-"Even when everything fails you still blame me..?"
+"Even when everything fails, you still blame me..?"
 ౨ৎ
 <img width="1100" alt="598301799-1e4735b3-aaea-4948-ac5c-b98240ae7ba7" src="https://github.com/user-attachments/assets/91e46338-c558-4bc8-993f-ac976c551492" />
 
