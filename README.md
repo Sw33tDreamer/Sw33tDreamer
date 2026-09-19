@@ -59,10 +59,12 @@
 <img width="1280" alt="tumblr_b55efcfad74a5b8e92f1cbab1c0b47e3_13d39de1_1280" src="https://github.com/user-attachments/assets/8d9ca9ad-7e56-4f42-aef5-702da01f9958" />
 
 ______
-
 <div align="center">
-
+  
 Credit to anyone for the blinkies/borders
 
-Credit to [Shepherd](https://github.com/PinkiePieExplosion) for this ReadMe creation.
+This GitHub was created by: 
+  
+[<img width="1600" alt="636695767-1b0125c1-5655-4538-8672-4bda9303f85c" src="https://github.com/user-attachments/assets/bc47c026-e544-4ccf-acce-ce711a240208" />](https://github.com/PinkiePieExplosion)
 </div>
+(Click this to go to his page) ^
